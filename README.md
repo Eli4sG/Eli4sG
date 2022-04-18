@@ -10,5 +10,5 @@
     💞️ I’m looking to collaborate on any project that you can find me a space and i would be so much happy to collaborate with you and your team,
     i love to learn and i consider myself someone that learn quickly, so i am very excited to colaborate whith you
     📫 I leave my e-mail, don´t doubt about to send me a message, i will very happy to answer and help as much i can
-    My E-mail: elias.g31299gmail.com
+    My E-mail: elias.g31299@gmail.com
 
